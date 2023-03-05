@@ -1,1 +1,38 @@
+# 2023年3月5日主日信息
+# 经文：士师记8:22-9:57
+# 主题：真王与假王
+# 讲员：王姊妹
+<audio controls src="./真王与假王.mp3"></audio>
+![image](https://user-images.githubusercontent.com/91267933/222941415-22da4c42-e23a-4dd4-9a4a-220545442cab.png)
+![image](https://user-images.githubusercontent.com/91267933/222941422-8c22f3ce-047a-4678-958d-cb47012bbec3.png)
+![image](https://user-images.githubusercontent.com/91267933/222941425-9f0038bb-01d2-48c3-8e0d-57ce81641463.png)
+![image](https://user-images.githubusercontent.com/91267933/222941427-8ebacad8-4312-4381-a12a-95432d80ef4b.png)
+![image](https://user-images.githubusercontent.com/91267933/222941430-c680f67f-f044-4dcb-a908-7940b437e564.png)
+![image](https://user-images.githubusercontent.com/91267933/222941436-a6864399-655a-4f56-9d97-3d7e723f09f7.png)
+![image](https://user-images.githubusercontent.com/91267933/222941439-cb07b956-4b28-43f1-935d-fad8da9f6e60.png)
+![image](https://user-images.githubusercontent.com/91267933/222941444-5982498d-7260-4bd7-92c7-8263ed68d3a4.png)
+![image](https://user-images.githubusercontent.com/91267933/222941445-ee7a1576-b985-450b-b6d6-4c8326075b09.png)
+![image](https://user-images.githubusercontent.com/91267933/222941448-333955e3-e0ae-49e2-9005-0d0f0a85bfb4.png)
+![image](https://user-images.githubusercontent.com/91267933/222941455-7e5a87fa-be47-4510-9475-1ecf84be3adf.png)
+![image](https://user-images.githubusercontent.com/91267933/222941457-e607e2d7-5f8b-4afa-92b6-32dc39387b7b.png)
+![image](https://user-images.githubusercontent.com/91267933/222941459-6a247edb-3d4a-4322-b315-61ebe49a1079.png)
+![image](https://user-images.githubusercontent.com/91267933/222941462-37925adb-26f2-4d55-96c0-7bd9371a98b3.png)
+![image](https://user-images.githubusercontent.com/91267933/222941468-cf9fd969-35cc-4f2e-afc6-becb4e01f536.png)
+![image](https://user-images.githubusercontent.com/91267933/222941470-640b12f5-e4e6-4369-9b9a-96c1935cb77c.png)
+![image](https://user-images.githubusercontent.com/91267933/222941472-ce7cf92b-65a8-40ea-9ad5-2661127f5dc3.png)
+![image](https://user-images.githubusercontent.com/91267933/222941476-4b449d1c-c49d-49eb-89ec-1a7205e5845b.png)
+![image](https://user-images.githubusercontent.com/91267933/222941480-10843c30-5efa-492e-ab6a-eb838561b689.png)
+![image](https://user-images.githubusercontent.com/91267933/222941485-f3f84aca-d086-4ab1-8da6-9071e3c9f67a.png)
+![image](https://user-images.githubusercontent.com/91267933/222941490-1de57d74-50e0-407f-8d3a-694459f0defb.png)
+![image](https://user-images.githubusercontent.com/91267933/222941498-76811c48-ad78-4c06-b166-c75ad436659b.png)
+![image](https://user-images.githubusercontent.com/91267933/222941502-ef9a7eb8-7d9c-446c-8faa-782079183715.png)
+![image](https://user-images.githubusercontent.com/91267933/222941505-ccfc1916-0a1e-4c7b-a9e3-0212ae202286.png)
+![image](https://user-images.githubusercontent.com/91267933/222941507-33dd5809-f876-4faf-876e-03a2a085c01c.png)
+![image](https://user-images.githubusercontent.com/91267933/222941511-12f31668-0b82-4d35-bf6b-37df503f0a60.png)
+![image](https://user-images.githubusercontent.com/91267933/222941513-0d8601f7-f0b7-47e1-a4d4-2bde51e9090c.png)
+![image](https://user-images.githubusercontent.com/91267933/222941515-f3fe70e9-a251-445e-bc39-b5d93c268ad4.png)
+![image](https://user-images.githubusercontent.com/91267933/222941520-19e14312-f9c6-42f9-a6f5-d79c6759ee4b.png)
+![image](https://user-images.githubusercontent.com/91267933/222941522-258eddfc-502a-47e5-846d-7f3dff1e0d20.png)
+![image](https://user-images.githubusercontent.com/91267933/222941524-b16ce3c2-80ad-4c2a-86d5-aea6d68e35e5.png)
+![image](https://user-images.githubusercontent.com/91267933/222941526-3e260529-7467-4cfa-9450-d0e0b4f62307.png)
 
